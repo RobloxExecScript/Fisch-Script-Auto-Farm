@@ -89,3 +89,6 @@ For questions or support, feel free to reach out:
 - **Discord**: fischscript#0241
 
 Happy fishing! 🎣
+
+### tags:
+### fisch script,fisch script gui,roblox fisch script,fisch hack,best fisch script,fisch script no key,fisch exploit,fisch auto farm,roblox fisch hack,roblox fisch afk farm,fisch script mobile,script fisch,fisch afk farm,fisch cheat,roblox fisch exploit,fisch script pastebin,roblox best fisch script,fisch dupe script,roblox fisch dupe script,roblox fisch,fisch auto rod,fisch script 2024,fisch script auto farm,fisch auto farming,fisch script dupe op
